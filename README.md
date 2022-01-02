@@ -1,2 +1,2 @@
-Trần Phạm Gia Long -18083111 -DHKTPM14- IUH
+Trần Phạm Gia Long -DHKTPM14- IUH
 
